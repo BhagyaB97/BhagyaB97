@@ -2,8 +2,7 @@
 
 
 
-- 🔭 I’m currently working on improving myself and my skills.
-- 💬 Ask me about anything that gives positive vibe.
+- 🔭 I’m currently working on improving product management strategies and techniques.
+- 💬 Ask me about how to improve user experiences .
 - 📫 How to reach me: https://www.linkedin.com/in/bhagya-b-36a742198/.
-- ⚡ Fun fact: i spent a lot of time dancing and vibing alone.
 -->
